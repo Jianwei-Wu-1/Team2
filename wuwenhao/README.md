@@ -1,1 +1,0 @@
-CISC 675 Lab 06 Team 02 DEMO TEST from Wenhao Wu
